@@ -4,4 +4,4 @@ Beginning QA Engineer. Looking for Junior QA Engineer position or internship for
 
 🌍 I'm living in Russia, Kaliningrad 
 
-✉️ You can contact me at Kotlyarov.n.p@mail.ru or Telegram
+✉️ You can contact me at Kotlyarov.n.p@mail.ru or [Telegram](https://t.me/NekoStyle_Oo)
